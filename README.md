@@ -1,4 +1,2 @@
 # git-oscar-rama
-
-
-ssssssss
+GGGGGGGGGGGGGGGGG
